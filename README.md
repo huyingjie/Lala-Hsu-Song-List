@@ -1,8 +1,8 @@
 <h1 align="center">徐佳莹</h1>
 <p align="center">🎵 徐佳莹 Lala Hsu 歌曲列表 🎶</p>
 <div align="center" style="padding-bottom:10px">
-	<a href=""><img src="https://img.shields.io/badge/Love-LaLa-ff69b4.svg"></a>
-	<a href=""><img src="https://img.shields.io/badge/Love-徐佳莹-ff69b4.svg"></a>
+	<a href="https://github.com/huyingjie/Lala-Hsu-Song-List"><img src="https://img.shields.io/badge/Love-LaLa-ff69b4.svg"></a>
+	<a href="https://github.com/huyingjie/Lala-Hsu-Song-List"><img src="https://img.shields.io/badge/Love-徐佳莹-ff69b4.svg"></a>
 </div>
 
 ## 目录
