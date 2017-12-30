@@ -43,11 +43,14 @@
 		* [2010-09-25-百万大歌星](https://youtu.be/Q5iFMzJdfUY?t=7m30s)
 	* 旅行的意义 - [原唱](https://www.youtube.com/watch?v=VaHgEZcFv-Y)
 		* [2009-06-06-百万大歌星](https://youtu.be/IIpxzJImSrM?t=6m57s)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=Nnas1sy2PJo)
 		* [2013-04-16 继续 理想人生演唱会 MV](https://www.youtube.com/watch?v=HDJOZjwlazo)❤️
+			* [版本2](https://www.youtube.com/watch?v=Nnas1sy2PJo)
 	* 家 - [原唱](https://www.youtube.com/watch?v=tXu-4BcZfE0)
 		* [2014-06-15-寻人启事演唱会](https://www.youtube.com/watch?v=PoFYch4b0Is)
 * 陈洁仪
 	* 喜欢你 - [原唱](https://www.youtube.com/watch?v=7iIbaSDyocI)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=M1fL12ukO8g)
 		* [2016-02-19-我是歌手4第6期](https://www.youtube.com/watch?v=vRPrNV6lPGQ)
 	* 心动 - [原唱](https://www.youtube.com/watch?v=5frZG1NRA0g)
 		* [2013-05-10-不只是你想看见的我 演唱会](https://www.youtube.com/watch?v=-bHSC_pqPKA) feat. 刘若英
@@ -78,9 +81,11 @@
 	* 最重要的决定 - [原唱](https://www.youtube.com/watch?v=RmrVpCVoVJU)
 		* [2017 弟弟婚礼](https://www.youtube.com/watch?v=rbMQnHJ8Fak)❤️
 		* [2017-09-30-是日救星演唱會(上海)](https://www.youtube.com/watch?v=cQvsfCDXgXU) feat. 范玮琪 ❤️
-
 	* 悄悄告訴你 - [原唱](https://www.youtube.com/watch?v=J0Pv4YmRMAU)
 		* [2014-02-23-年度形象大使 - 第九屆 KKBOX 风云榜](https://www.youtube.com/watch?v=2DRNL_Gx6OM)
+* 范晓萱
+	* 管他什么音乐 - [原唱](https://www.youtube.com/watch?v=jNV_u129cj4)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=1nM2OZbPYeA)
 * 方大同
 	* 四人游 - [原唱](https://www.youtube.com/watch?v=K5D3vYVMVZY)
 		* [2008-05-16-超级星光大道3](https://www.youtube.com/watch?v=P27PzSxAzdc)
@@ -144,7 +149,7 @@
 
 	* 想自由 - [原唱](https://www.youtube.com/watch?v=NuiAOSii_sk)
 		* [2012-11-03-理想人生演唱會(TICC)](https://www.youtube.com/watch?v=pBJn4bnqeNY)
-
+			* [版本2](https://www.youtube.com/watch?v=pBJn4bnqeNY)
 	* 拥有 - [原唱](https://www.youtube.com/watch?v=DSzrj1uEb1w)
 		* [2011-12-24-葵斯麻詩演唱會(台北Legacy)](https://www.youtube.com/watch?v=1GXui9apL5Y)
 * 卢广仲
@@ -161,6 +166,8 @@
 		* [2016 Transition華麗的轉身演唱會](https://www.youtube.com/watch?v=DZjkUlfnuM8)
 	* 爱 - [原唱](https://www.youtube.com/watch?v=LbM6Q9HZgDE)
 		* [2011-05-14-调色盘演唱会(Legacy)](https://www.youtube.com/watch?v=wdm8JpOxLR0)
+	* 消灭 - [原唱](https://www.youtube.com/watch?v=KtZQOF6dc-0)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=P8TBHfGvo-0)
 * 那英
 	* 春暖花开 - [原唱](https://www.youtube.com/watch?v=KqOzTGhl9ZI)
 		* [2009](https://www.youtube.com/watch?v=0kwMoMS41Nc)
@@ -187,6 +194,8 @@
 		* [2010-09-06 音乐万万岁](https://www.youtube.com/watch?v=W7cH8ZDFFi0)
 	* 我不难过 - [原唱](https://www.youtube.com/watch?v=GDsyUtdS1YM)
 		* [2008-06-13-超级星光大道3](https://www.youtube.com/watch?v=O9oUIhem628)
+	* 奔 - [原唱](https://www.youtube.com/watch?v=Quhr5Kbe7zk)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=qbIat2Nje5A)
 * 田馥甄
 	* 不醉不会 - [原唱](https://www.youtube.com/watch?v=7gQxgKaiPzk)
 		* [2016-01-29-我是歌手4第3期](https://www.youtube.com/watch?v=wFx6X06GTgA)
@@ -210,6 +219,8 @@
 * 王菲
 	* 光之翼 - [原唱](https://www.youtube.com/watch?v=il5Z-jOWLuc)
 		* [2016-02-22-元宵喜乐会](https://www.youtube.com/watch?v=W_GQGLGw4iw)
+	* 脸 - [原唱](https://www.youtube.com/watch?v=-CWgOL2y1AA)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=-0Qb8B1qPtU)
 * 王心凌
 	* 变成陌生人 - [原唱](https://www.youtube.com/watch?v=3B4fyi-xXzo)
 		* [2013-05-10 演唱会](https://youtu.be/QG8pj6kgMh0?t=45s)
@@ -255,6 +266,8 @@
 		* [第２６屆金曲獎頒獎典禮--徐佳瑩表演唱作俱佳](https://youtu.be/a8JCtj1JBQs?t=5m17s)	
 	* 一眼瞬間 - [原唱](https://www.youtube.com/watch?v=Egrpx5g0UgI)
 		* [2008-04-14-超级星光大道3](https://www.youtube.com/watch?v=BzIO5XLdxMs)
+	* 不要乱说 - [原唱](https://www.youtube.com/watch?v=jf6h98FJuhM)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=8HiYm-qQrTo)
 * 张清芳
 	* 偶然 - [原唱](https://www.youtube.com/watch?v=W5IaugSsZPQ)
 		* [2015-06-06-台北小巨蛋](https://www.youtube.com/watch?v=mw1OtyflT-I)
@@ -282,6 +295,7 @@
 * 杨乃文
 	* 女爵 - [原唱](https://www.youtube.com/watch?v=1M-0vbDTxJw)
 		* [继续 理想人生](https://www.youtube.com/watch?v=VpGF93VmjyI)
+		* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=QSA9mUoGv2U)
 * 五月天
 	* 突然好想你 - [原唱](https://www.youtube.com/watch?v=GtDRcXtDg-4)
 		* [女也herstory with Mayday](https://www.youtube.com/watch?v=IBT0_3QUy98)
@@ -344,6 +358,7 @@
 	* [2008-08-15-星光大道3总决赛](https://www.youtube.com/watch?v=Rg1-WYT3ijE&t=217s)
 	* [2009-06-26-超级星光大道](https://www.youtube.com/watch?v=K5bS0nUaCTY)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=K7UB-1-usqI)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=bhAn837rDUk)
 	* [2013-10-13-高雄大彩虹音乐节](https://www.youtube.com/watch?v=pYuy0hf0_ZE)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=2952s)
 	* [2015-12-05-简单生活节](https://youtu.be/ZtJ_edaz4v4?t=26m25s)
@@ -359,6 +374,7 @@
 	* [2009-06-03-康熙来了](https://youtu.be/aSGLCtyXiNw?t=4m20s)
 	* [2009-07-24-超级星光大道 徐詠琳](https://www.youtube.com/watch?v=0o3545T3BQc)
 	* [2011-02-06-亚洲星光争霸赛](https://www.youtube.com/watch?v=UWvax_lBzLU)🤣
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=yPr8Nm-upV4)
 	* [2013-06-10-冲刺好声音](https://www.youtube.com/watch?v=fPeAEjm-vTo)
 	* [2014-03 演唱会](https://www.youtube.com/watch?v=wArfmiUXXKo) feat. 丁噹
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=8466s)
@@ -376,6 +392,7 @@
 	* 慢节奏版
 		* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=465s)
 * [你敢不敢 MV](https://www.youtube.com/watch?v=HLibG1_lcTk)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=xYBPZsSkaVA)
 	* [2013-10-13-高雄大彩虹音乐节](https://www.youtube.com/watch?v=i2ZWtMQs5xc)
 	* [2014-06-15-寻人启事演唱会](https://www.youtube.com/watch?v=HEv1y3aioZk)
 	* [2014-07-05-日本311纪念展 徐佳莹音乐分享会](https://www.youtube.com/watch?v=WRzSS8XKdnw&feature=youtu.be)
@@ -391,6 +408,7 @@
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=1318s)
 * [迪斯可 MV](https://www.youtube.com/watch?v=fDv5vK6M_p4)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=pYuhuLN5xPo)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=J-1NRLpkRFE)
 	* [2013-10-13-高雄大彩虹音乐节](https://www.youtube.com/watch?v=maRloSevPfk)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=1567s)
 * [潜规则 MV](https://www.youtube.com/watch?v=Ev-m58KarRE)
@@ -401,14 +419,17 @@
 * [一样的月光 MV](https://www.youtube.com/watch?v=TxXIfcRt1WQ)
 	* [2008-04-04-超级星光大道3](https://www.youtube.com/watch?v=XClgGpwbogQ)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=rVtDCxVec7s)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=mx4IgdAcgho)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=2213s)
 	* [2015-12-05-简单生活节](https://youtu.be/ZtJ_edaz4v4?t=22m21s)
 	* [2017-06-09-金曲捞 feat. 金志文](https://www.youtube.com/watch?v=0eXF8EUBuqU)
 * [调色盘 MV](https://www.youtube.com/watch?v=LZh9ymHIYnI)❤️
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=-Z2OT97JEHQ)
 	* [2014-07-05-日本311纪念展 徐佳莹音乐分享会](https://www.youtube.com/watch?v=MkKWVL7dlMc)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=2447s)
 * [惧高症 MV](https://www.youtube.com/watch?v=D_s_tIAJbqA)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=BNHx6ziDx3A)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=S0SCp5MEJbQ)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=2687s)
 	* [2015-12-05-简单生活节](https://youtu.be/ZtJ_edaz4v4?t=9m17s)
 * [树洞的声音](https://www.youtube.com/watch?v=sGT2M2qaKBU) + [Legacy演唱会 MV](https://www.youtube.com/watch?v=ZFjXdUNxlb4)
@@ -424,7 +445,8 @@
 	* [2014-06-15-寻人启事演唱会](https://www.youtube.com/watch?v=b8hiNCfOy0U)
 * [极限 MV](https://www.youtube.com/watch?v=1EMYVt0odI0) + [日全蚀原唱会现场实录 MV](https://www.youtube.com/watch?v=Xtaz8mkHK4c)❤️
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=-u2QpYwD08U)
-	* [2012-11-03-理想人生演唱会](https://www.youtube.com/watch?v=qj2t5BTu36A)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=qj2t5BTu36A)
+		* [版本2](https://www.youtube.com/watch?v=TSms5wnGWSk)
 	* [2013-10-13-高雄大彩虹音乐节](https://www.youtube.com/watch?v=PWA8Xb0ZUVA) 改编版
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=4049s)
 * [明天的事情 MV](https://www.youtube.com/watch?v=I1tXs-uszQs)
@@ -435,6 +457,7 @@
 * [香水 MV](https://www.youtube.com/watch?v=4o3VMJlm7Ag)
 	* [2008-08-15-超级星光大道3总决赛](https://www.youtube.com/watch?v=c5ikV9p6Ruc)❤️
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=LJeEViQZqHc)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=VSgmGlnhUzo)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=4765s)
 	* [2015-12-05-简单生活节](https://youtu.be/ZtJ_edaz4v4?t=13m41s)
 		* [版本2](https://youtu.be/ZtJ_edaz4v4?t=31m34s)
@@ -447,11 +470,14 @@
 * 我也不想这样
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=6576s)
 * 理想人生
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=gOo5EzzXkD8)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=6975s)
 * [不难 MV](https://www.youtube.com/watch?v=CnDrZUWQs6A)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=9j3o_AsHTQE)
 	* [2014-06-15-寻人启事演唱会](https://www.youtube.com/watch?v=WOIAlSHtck0)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=7215s)
 * [不怕庆祝 MV](https://www.youtube.com/watch?v=fpgn53HSUr0) + [电影 为你流的泪 MV](https://www.youtube.com/watch?v=CZ3fTq6SeO4)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=7_lc8C5JGjE)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=7499s)
 * [在旅行的路上 MV](https://www.youtube.com/watch?v=_4q_U7cyEW4)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=8120s)
@@ -467,7 +493,8 @@
 	* [2017-04-23](https://www.youtube.com/watch?v=RpxCD0sER2M)
 * [出口](https://www.youtube.com/watch?v=cyZKuv6LFgk)
 	* [2008-03-21-超级星光大道3](https://www.youtube.com/watch?v=32WODx90AKo)
-		* [2015-08-10-中国新声代第三季第5期](https://www.youtube.com/watch?v=AJM9PWgofH0)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=s-G5gvdjSaE)
+	* [2015-08-10-中国新声代第三季第5期](https://www.youtube.com/watch?v=AJM9PWgofH0)
 * [湫兮如风 MV](https://www.youtube.com/watch?v=dJNrSQ4JaZY)❤️
 * [耳边风 MV](https://www.youtube.com/watch?v=qqRJqEl0zVg)
 	* [2014-06-15-寻人启事演唱会](https://www.youtube.com/watch?v=3S2-vgeQGFc)
@@ -479,25 +506,30 @@
 	* [2017-09-16-爱Fun第一绿生活 嘉年华(华山艺文公园)](https://www.youtube.com/watch?v=TSxS12HvS4s)
 * [绿洲 MV](https://www.youtube.com/watch?v=bdNxw57bLZI)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=ggqNwuRFjWI)
-* [在旅行的路上](https://www.youtube.com/watch?v=_4q_U7cyEW4)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=4nw8GDi0DOw)
 * [哼情歌 MV](https://www.youtube.com/watch?v=-8DCafd4MtM)
 	* [2010-11-26-Legacy演唱会](https://youtu.be/IgnGUjp_vl0?t=4m36s)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=2wfzipRXVrE)
 * [理想人生 MV](https://www.youtube.com/watch?v=ZtJhdFVZYI4)❤️
 * 圆舞曲
 	* [2008-06-20-超级星光大道3](https://youtu.be/cruCy5H6W44?t=3m19s)
 	* [2008-07-12-棒棒糖再战星光三](https://www.youtube.com/watch?v=tZ0W5vvw-_4)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=Zg87wkU-Zhs)
-	* [2012-11-03-理想人生演唱会](https://youtu.be/qj2t5BTu36A?t=4m59s)
+	* [2012-11-03-理想人生演唱会(TICC)](https://youtu.be/qj2t5BTu36A?t=4m59s)
+		* [版本2](https://www.youtube.com/watch?v=HisgKMHN_LI)
 * [翻滚吧!我的宝贝](https://www.youtube.com/watch?v=00jYdNLDlUU)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=pF96Fjz5Bfg)
 	* [2017-07-23-高雄啤酒节](https://www.youtube.com/watch?v=tORsyxdFJP0)
 	* [2017-10-21-宜兰全运会开幕](https://youtu.be/99cPAKwQCG4?t=8m42s)
 * [喔伊细 MV](https://www.youtube.com/watch?v=Hk9Xcvso06M)
 * [夜盲症 继续理想人生演唱会 MV](https://www.youtube.com/watch?v=lNwIJGnATxU)	
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=z-08CC-FqjU)
 * [蓝天](https://www.youtube.com/watch?v=9pBBqmZwzFw)
 * [白旗](https://www.youtube.com/watch?v=IjN-0NQubMw)
 	* [2008-08-01-超级星光大道3](https://www.youtube.com/watch?v=wXyZ1STaMEM)
 * [別怕](https://www.youtube.com/watch?v=arNo1TJwxlw)
 * 拉拉队
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=03MUuSniG5g)
 	* [2017-10-21-宜兰全运会开幕](https://youtu.be/99cPAKwQCG4?t=12m14s)
 * [貝殼](https://www.youtube.com/watch?v=y3LyE7PQPSk)
 * [糖果粉碎者 MV](https://www.youtube.com/watch?v=g8F1WI59Yk0)
@@ -506,7 +538,8 @@
 * [别怕](https://www.youtube.com/watch?v=arNo1TJwxlw)
 * [去我家](https://www.youtube.com/watch?v=SPgzWJ_6Pa4)
 	* [2010-11-26-Legacy演唱会](https://www.youtube.com/watch?v=-D9BOgkteGE)
-
+* [辣椒](https://www.youtube.com/watch?v=9LK4wy3-sx8)
+	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=_btlw_BNvrY)
 ## 长的演讲
 * [2011-03-06-超级星光大道](https://www.youtube.com/watch?v=1viaW59PlsA)
 * [2014-06-22-【不凡夢想的實踐者 徐佳瑩】尋人啟事音樂分享會 全記錄(誠品板橋店 1F 後院廣場)](https://www.youtube.com/watch?v=hTemlEzlhRE)
