@@ -362,7 +362,7 @@
 	* [2013-10-13-高雄大彩虹音乐节](https://www.youtube.com/watch?v=pYuy0hf0_ZE)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=2952s)
 	* [2015-12-05-简单生活节](https://youtu.be/ZtJ_edaz4v4?t=26m25s)
-	* [2016-01-15-第四季第1期](https://www.youtube.com/watch?v=5zE33Nsts_k)
+	* [2016-01-15-我是歌手第四季第1期](https://www.youtube.com/watch?v=5zE33Nsts_k)
 	* [2016-07-02-我想和你唱第9期](https://youtu.be/m0_SyUVphMA?t=7m32s)
 	* [2016-12-31-台中好跨年晚会](https://www.youtube.com/watch?v=GEyMf26TFLI)
 	* [2017-03-06-是日救星(香港)](https://www.youtube.com/watch?v=pxuBgf04bhM)
@@ -469,7 +469,7 @@
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=6227s)
 * 我也不想这样
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=6576s)
-* 理想人生
+* [理想人生 MV](https://www.youtube.com/watch?v=ZtJhdFVZYI4)❤️
 	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=gOo5EzzXkD8)
 	* [2015-03-21-日全蚀台北小巨蛋演唱会](https://www.youtube.com/watch?v=sGUYuEaJErU&t=6975s)
 * [不难 MV](https://www.youtube.com/watch?v=CnDrZUWQs6A)
@@ -510,7 +510,7 @@
 * [哼情歌 MV](https://www.youtube.com/watch?v=-8DCafd4MtM)
 	* [2010-11-26-Legacy演唱会](https://youtu.be/IgnGUjp_vl0?t=4m36s)
 	* [2012-11-03-理想人生演唱会(TICC)](https://www.youtube.com/watch?v=2wfzipRXVrE)
-* [理想人生 MV](https://www.youtube.com/watch?v=ZtJhdFVZYI4)❤️
+
 * 圆舞曲
 	* [2008-06-20-超级星光大道3](https://youtu.be/cruCy5H6W44?t=3m19s)
 	* [2008-07-12-棒棒糖再战星光三](https://www.youtube.com/watch?v=tZ0W5vvw-_4)
