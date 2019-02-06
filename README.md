@@ -335,6 +335,13 @@
 * [王老先生有块地](https://youtu.be/tEK9Yz6YKLs?t=3m15s)❤️❤️❤️
 
 ## 原唱
+* 我們的十年
+
+	* [2018-05-26-QQ炫舞十周年](https://www.youtube.com/watch?v=7D_14jyatks)
+* 言不由衷
+	* [2018-03-23-香港亞洲流行音樂節](https://www.youtube.com/watch?v=07MwdjtTJS8)
+* 到此为止
+	* [2018-03-23-香港亞洲流行音樂節](https://www.youtube.com/watch?v=Gves5H3HY1I)
 * [起点 星光大道主题曲](https://www.youtube.com/watch?v=HJGp_gf6W6A)
 * [翻滾吧!男人 MV](https://www.youtube.com/watch?v=8hOkHNFPvwM)
 * [因爱闪光](https://www.youtube.com/watch?v=D4gI9pbwFw0)
